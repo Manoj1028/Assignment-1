@@ -6,7 +6,7 @@ G.N.S.Manoj
 
 ## Current position
 Graduate student at North west missouri state university
--[NWSU](https://www.nwmissouri.edu/"NWSU")
+-[NWSU](https://www.nwmissouri.edu/ "NWSU")
 
 ## PREVIOUS QUALIFICATION
 1.BACHELOR OF TECHNOLOGY IN VNRVJIET

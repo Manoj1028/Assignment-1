@@ -13,7 +13,7 @@ Graduate student at North west missouri state university
 - [VNRVJIET](https://content3.jdmagicbox.com/comp/hyderabad/u9/040pxx40.xx40.000445559962.h3u9/catalogue/vnr-vignana-jyothi-institute-of-engineering-and-technology-bachupally-hyderabad-colleges-twvtc.jpg?interpolation=lanczos-none&output-format=jpg&resize=1024:370&crop=1024:370px;*,* "yes")
 2. Worked as intern in Airtel india
 
-##Present country 
+## Present Country 
 -![Hosted image](https://upload.wikimedia.org/wikipedia/en/thumb/a/a4/Flag_of_the_United_States.svg/1200px-Flag_of_the_United_States.svg.png "welcome to united states")
 
 
